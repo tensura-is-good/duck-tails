@@ -1,1 +1,15 @@
-https://docs.google.com/document/d/127R3fjJAeJeavA-6B2o4gMFJHeCxOo6v53Nmo6gjMPw/edit
+basketcraft.net
+biology.prs7.org
+https://window.fletesymudanzas.cl/
+https://resources.caplaps.online/
+https://stuffyschicken.isreallycool.lol/
+https://mathnotes.help/
+https://ihavekidsinmybasement.mathlearning.tech/
+https://ixl.plus/
+https://class.runrenedu.com/main.html
+https://thisisnot.fairuse.org/
+https://mocha.proudparrot2.tech/
+https://window.fletesymudanzas.cl/
+https://lapis-tasty-shoemaker.glitch.me/
+https://olivine-sequoia-radiator.glitch.me/
+https://pricey-certain-nutmeg.glitch.me/
